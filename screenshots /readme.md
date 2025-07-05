@@ -1,1 +1,1 @@
-Screenshots of Project 
+Screenshot of Project 
